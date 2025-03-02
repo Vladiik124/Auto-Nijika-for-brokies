@@ -5,7 +5,7 @@
 * doing nothing with your life.
 * focusing on roblox grinding games.
 * because ur a bum.
-* and no one likes you.\n
+* and no one likes you.
 * and the only way for you to get joy in life is to play grinding games.
 * and u probably smell too.
 * green aura with flies looking head ahh.
