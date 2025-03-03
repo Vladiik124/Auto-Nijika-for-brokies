@@ -1,4 +1,5 @@
-# AUTO NIJIKA WITH NO ROBUX
+# 💸🤑💸🤑🤑💸💸🤑💸🤑AUTO NIJIKA WITH NO ROBUX💸🤑💸🤑💸💸🤑💸💸🤑💸💸
+## Introduction
 * Do you play bokki the rock simulator? are you poor? do you want that DELICIOUS SO NUTRICIOUS AUTO NIJIKA WHILE UR AFK BUT UR BROKE ASS CANT AFFORD IT?
 * Probably because u live in ur moms basement.
 * doing nothing with your life.
@@ -8,3 +9,6 @@
 * and the only way for you to get joy in life is to play grinding games.
 * and u probably smell too.
 * green aura with flies looking head ahh.
+
+## WELL DO NOT FRET BECAUSE I HAVE THE SOLUTION FOR YOU!
+With robux free auto nijika all ur dreams will come true! my grandma unfell up the stairs after I used it and it's pretty good! 👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍👍
